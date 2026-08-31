@@ -1,0 +1,1 @@
+# Checkpoint-sprint-1-solucao-energias-renovaveis
